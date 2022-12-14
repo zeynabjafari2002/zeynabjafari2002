@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I am Zeynab Jafari 👋
 
 <!--
 **zeynabjafari2002/zeynabjafari2002** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
